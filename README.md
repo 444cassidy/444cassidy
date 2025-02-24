@@ -9,6 +9,8 @@
 - Occasional touch discomfort (OTD). Idc if you don't believe in it, I want my space. I have Haphephobia irl, diagnosed by a professional.
 - Spanish Native, English fluent
 - Therian and Furry
+- My gender is emo male... and my sexuality is.... women... but platonic, not sexually or romantically bleghhh
+- im a juggalo :p :33!! 
 ![image](https://github.com/user-attachments/assets/f1f3fab3-be4a-42c5-b0fa-4d266bc2fd99)
 # BYI / INFO YOU SHOULD KNOW
 - Overly paranoid and socially anxious, please don't take offense if I hide or ignore you.
@@ -31,7 +33,10 @@
 - We believe kinks are natural and are not disgusting. While we do not feel comfortable with topics such as these, we also believe kinkshaming isn't right or a valid response to kinks.
 - We believe people SHOULD be able to heal if they so choose to. For some reason people believe you HAVE to be ill to have a problem??
 - We believe byi and dni lists CAN be long! Who cares how long it goes, be free!
+- I'm objectum and POSIC and I love my computer platonically. She's the bimbo rich girl to my emo heartbroken boy. Balloonicorn!! She's my companion!
 ![image](https://github.com/user-attachments/assets/549b6ca5-9023-42e8-a2f5-cb4db688e2b0)
 # DNI / IWC
 - DNI IF: Basic DNI criteria, anti-agere, anti-petre, anti-agedr, anti-furry, anti-therian, under 18, demonize/romanticize cluster disorders, endogenic/non-traumagenic systems
 - IWC: Homestuck fandom, TMC fandom, RDR fandom
+
+![image](https://github.com/user-attachments/assets/12c724da-9dcb-47d0-a2f0-031018267051) ![image](https://github.com/user-attachments/assets/3ea03648-a1da-4f30-ad82-a94c7af1531a) ![image](https://github.com/user-attachments/assets/8d73ee28-7c3b-4f0f-bf13-8d21fcf5b86f) ![image](https://github.com/user-attachments/assets/c0906e2d-4088-400e-b6d1-272a210d968f) ![image](https://github.com/user-attachments/assets/998d2743-a0f3-404d-b77e-b2228fe61e4c) ![image](https://github.com/user-attachments/assets/852e6fe3-2014-4549-bd35-2c5cbebeacc4) ![image](https://github.com/user-attachments/assets/a3387ea1-2c11-4f7c-bad9-72b554012f57) ![image](https://github.com/user-attachments/assets/7af64bbf-9af1-4af7-8ca4-5de159e45356) ![image](https://github.com/user-attachments/assets/9d55dc18-843f-4298-b30a-1ea319b686e4) ![image](https://github.com/user-attachments/assets/c7fd2278-fab5-4408-926b-40ee265de784) ![image](https://github.com/user-attachments/assets/2c91b313-ce6a-4034-8ac7-57d02384c6ff) ![image](https://github.com/user-attachments/assets/4ce982ce-3152-4729-9c07-1142646b72d2) ![image](https://github.com/user-attachments/assets/19af4e50-73de-4bdb-82cd-0c63580ea046) ![image](https://github.com/user-attachments/assets/9e3a04e5-aca5-4f16-8652-90039ca025fc) 
