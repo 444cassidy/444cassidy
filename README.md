@@ -29,7 +29,7 @@
 - We split easily, please be patient if a fragment or newer alter fronts, but please note; we are NOT polyfragmented due to being an OSDD-1B system.
 - Fine with being asked system questions.
 - I hate the terns "factive" and "fictive" and ask that you use the term introject.
-- We cannot recieve medical help for a diagnosis on our OSDD-1B, HOWEVER, we have done research for 2 years, have gotten multiple legal documents, read multiple resources, and have consulted our main doctor on our problem. We plan to recieve help, but as of now, we are too poor and are currently trying to get insurance so we don't have to pay for mental health help.
+- We cannot recieve medical help for a diagnosis on our OSDD-1B, HOWEVER, we have done research for 2 years, have gotten multiple legal documents, read multiple resources, and have consulted our main doctor on our problem. We plan to recieve help, but as of now, we are too poor and are currently trying to get insurance so we don't have to pay for mental health help. That being said, we are in therapy for our bipolar I and autism.
 - We believe kinks are natural and are not disgusting. While we do not feel comfortable with topics such as these, we also believe kinkshaming isn't right or a valid response to kinks.
 - We believe people SHOULD be able to heal if they so choose to. For some reason people believe you HAVE to be ill to have a problem??
 - We believe byi and dni lists CAN be long! Who cares how long it goes, be free!
