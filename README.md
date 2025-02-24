@@ -9,8 +9,9 @@
 - Occasional touch discomfort (OTD). Idc if you don't believe in it, I want my space. I have Haphephobia irl, diagnosed by a professional.
 - Spanish Native, English fluent
 - Therian and Furry
-- My gender is emo male... and my sexuality is.... women... but platonic, not sexually or romantically bleghhh
-- im a juggalo :p :33!! 
+- My gender is emo male... and my sexuality is.... women and non-binary... but platonic, not sexually or romantically bleghhh
+- im a juggalo :p :33!!
+- Self-taught artist and programmer.
 ![image](https://github.com/user-attachments/assets/f1f3fab3-be4a-42c5-b0fa-4d266bc2fd99)
 # BYI / INFO YOU SHOULD KNOW
 - Overly paranoid and socially anxious, please don't take offense if I hide or ignore you.
