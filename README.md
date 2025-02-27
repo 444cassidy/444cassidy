@@ -36,7 +36,7 @@
 - We believe byi and dni lists CAN be long! Who cares how long it goes, be free!
 - I'm objectum and POSIC and I love my computer platonically. She's the bimbo rich girl to my emo heartbroken boy. Balloonicorn!! She's my companion!
 - Keep in mind, we're a stoner. We get high sometimes.
-- If we find out you're a minor on safe, we will permahide you for our safety. No, we will not unblock you until we feel safe.
+- If we find out you're a minor on 18+, we will permahide you for our safety. No, we will not unblock you until we feel safe.
 ![image](https://github.com/user-attachments/assets/549b6ca5-9023-42e8-a2f5-cb4db688e2b0)
 # DNI / IWC
 - DNI IF: Basic DNI criteria, anti-agere, anti-petre, anti-agedr, anti-furry, anti-therian, under 18, demonize/romanticize cluster disorders, endogenic/non-traumagenic systems
