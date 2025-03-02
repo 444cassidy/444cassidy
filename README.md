@@ -1,7 +1,7 @@
 ![image](https://github.com/user-attachments/assets/52fee095-8873-4ef9-9b4e-54c65fc34d2b)
 # INFO ABT US
 - Cassidy or Cirrus
-- Bodily 18-years-old
+- Bodily 18-years-old. Minors DNIUID
 - Traumagenic OSDD-1B Sys. We use both I/me and we/us pronouns. We refer to alters as "parts" since we are all parts of the same body. Endos DNI for comf
 - Nonverbal irl and Autistic AAC user. We need tonetags. If you don't want me to use ttgs on you, we won't, but we require tonetags if you plan on roughhousing with us.
 - Bipolar I. Obssessive person when I get to know you, I apologize in advance if I end up becoming too clingy. Please inform me if you are uncomfortable and I'll do my best to calm it down.
