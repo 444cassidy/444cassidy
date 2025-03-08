@@ -7,9 +7,9 @@
 - Bipolar I. Obssessive person when I get to know you, I apologize in advance if I end up becoming too clingy. Please inform me if you are uncomfortable and I'll do my best to calm it down.
 - Age and pet regressor. NOT looking for a caregiver, do not ask.
 - Occasional touch discomfort (OTD). Idc if you don't believe in it, I want my space. I have Haphephobia irl, diagnosed by a professional.
-- Spanish Native, English fluent
+- Spanish & English fluent
 - Therian and Furry
-- My gender is emo male... and my sexuality is.... women and non-binary... but platonic, not sexually or romantically bleghhh
+- My gender is uhmm feminine but idk what... and my sexuality is.... women and non-binary... but platonic, not sexually or romantically bleghhh
 - im a juggalo :p :33!!
 - Self-taught artist and programmer.
 ![image](https://github.com/user-attachments/assets/f1f3fab3-be4a-42c5-b0fa-4d266bc2fd99)
