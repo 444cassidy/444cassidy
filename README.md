@@ -4,7 +4,7 @@
 - Bodily 18-years-old. Minors DNIUID
 - Traumagenic OSDD-1B Sys. We use both I/me and we/us pronouns. We refer to alters as "parts" since we are all parts of the same body. Endos DNI for comf
 - Nonverbal irl and Autistic AAC user. We need tonetags. If you don't want me to use ttgs on you, we won't, but we require tonetags if you plan on roughhousing with us.
-- Bipolar I. Obssessive person when I get to know you, I apologize in advance if I end up becoming too clingy. Please inform me if you are uncomfortable and I'll do my best to calm it down.
+- Bipolar I and Borderline Personality Disorder. Both professionally diagnosed. Obssessive person when I get to know you, I apologize in advance if I end up becoming too clingy. Please inform me if you are uncomfortable and I'll do my best to calm it down.
 - Age and pet regressor. NOT looking for a caregiver, do not ask.
 - Occasional touch discomfort (OTD). Idc if you don't believe in it, I want my space. I have Haphephobia irl, diagnosed by a professional.
 - Spanish & English fluent
