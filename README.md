@@ -23,3 +23,4 @@
 - If we find out you're a minor on 18+, we will permahide you for our safety. No, we will not unblock you until we feel safe.
 - I don't talk about my BPD much so don't expect me to put it everywhere except my discord, github, and talklife account.
 - We have a lot of introjects from "edgy sources" so expect to see Jeff the Killer in the same room as Hank J. Wimbleton and Pinkamena.
+- Ask for our interests
