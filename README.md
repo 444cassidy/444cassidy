@@ -36,6 +36,7 @@
 - I'm objectum and POSIC and I love my computer platonically. She's the bimbo rich girl to my emo heartbroken boy. Balloonicorn!! She's my companion!
 - If we find out you're a minor on 18+, we will permahide you for our safety. No, we will not unblock you until we feel safe.
 - I don't talk about my BPD much so don't expect me to put it everywhere except my discord, github, and talklife account.
+- We have a lot of introjects from "edgy sources" so expect to see Jeff the Killer in the same room as Hank J. Wimbleton and Pinkamena.
 ![image](https://github.com/user-attachments/assets/549b6ca5-9023-42e8-a2f5-cb4db688e2b0)
 # DNI / IWC
 - DNI IF: Basic DNI criteria, anti-agere, anti-petre, anti-agedr, anti-furry, anti-therian, demonize/romanticize cluster disorders, endogenic/non-traumagenic systems
