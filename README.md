@@ -1,7 +1,4 @@
-## WARNING: I'm a weird person, like clinically weird. I make a lot of weird jokes involving unsanitary suggestive subjects such as puke, cocks, etc etc. Please be aware of this.
-## ANOTHER WARNING: Idc if you're a [proshipper](https://learnaboutproshipping.carrd.co/#indpth), as long as you don't condone the media/source or bring up harmful darkships around minors.
-### ANOTHER ANOTHER WARNING: Idc if ur a [lesboy](https://lesboys.carrd.co/#page3), I'm not a lesbian so I can't speak on it. You are cool tho so yeah, I support and respect idc wha the public says.! :)
-![© ianrkives](https://github.com/user-attachments/assets/452e5aa6-6957-490a-a232-e2dcdebe4985)
+## WARNING: I'm a weird person, like clinically weird. I make a lot of weird jokes involving unsanitary suggestive subjects such as puke, cocks, etc etc. Please be aware of this. I do not censor myself for some reason.
 - Cassidy/Cirrus ⦻ It/clown/plague/fear — [Xenoflux](https://lgbtqia.wiki/wiki/Xenoflux)
 - Aegosexual Aromantic [XPOSIC+](https://posicterms.carrd.co/#subterms) [Objectum](https://objectuminfo.carrd.co/#explain)
 - Bodily 18 🪓 Minors [DNIUID](https://gildedwingsinteractiontags.carrd.co/)
@@ -27,3 +24,4 @@
 - I don't talk about my BPD much so don't expect me to put it everywhere except my discord, github, and talklife account.
 - We have a lot of introjects from "edgy sources" so expect to see Jeff the Killer in the same room as Hank J. Wimbleton and Pinkamena.
 - Ask for our interests
+- I like edgy song creators like Mc Bushpig, so uhm.. dni if ur not comfy w/ that bc I quote their songs sometimes + some of my songs have references to their songs.
