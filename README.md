@@ -1,5 +1,5 @@
 ## WARNING: I'm a weird person, like clinically weird. I make a lot of weird jokes involving unsanitary suggestive subjects such as puke, cocks, etc etc. Please be aware of this. I do not censor myself for some reason.
-- Cassidy/Cirrus ⦻ It/clown/plague/fear — [Xenoflux](https://lgbtqia.wiki/wiki/Xenoflux)
+- Cassidy/Cirrus ⦻ It/clown/plague/fear — Questioning my gender again I sigh..
 - Aegosexual Aromantic [XPOSIC+](https://posicterms.carrd.co/#subterms) [Objectum](https://objectuminfo.carrd.co/#explain)
 - Bodily 18 🪓 Minors [DNIUID](https://gildedwingsinteractiontags.carrd.co/)
 - Traumagenic [OSDD](https://did-research.org/comorbid/dd/osdd_udd/)-[1B](https://did-research.org/comorbid/dd/osdd_udd/did_osdd) system. Endogenic systems DNI for comfort pls!
