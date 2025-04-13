@@ -24,4 +24,4 @@
 - I don't talk about my BPD much so don't expect me to put it everywhere except my discord, github, and talklife account.
 - We have a lot of introjects from "edgy sources" so expect to see Jeff the Killer in the same room as Hank J. Wimbleton and Pinkamena.
 - Ask for our interests
-- I like edgy song creators like Mc Bushpig, so uhm.. dni if ur not comfy w/ that bc I quote their songs sometimes + some of my songs have references to their songs.
+- I like edgy song creators like Mc Bushpig, so uhm.. dni if ur not comfy w/ that bc I quote their songs sometimes + some of my skins have references to their songs.
