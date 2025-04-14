@@ -1,9 +1,9 @@
-## WARNING: I'm a weird person, like clinically weird. I make a lot of weird jokes involving unsanitary suggestive subjects such as puke, cocks, etc etc. Please be aware of this. I do not censor myself for some reason.
+## BEFORE YOU WONDER: I would like to clarify that I have been diagnosed with Anomic Aphasia, a specific type of [Aphasia](https://www.webmd.com/brain/aphasia-causes-symptoms-types-treatments). In the past, I have frequently referred to myself as nonverbal in real-life situations. While I do have the struggle to speak, this description was not entirely accurate. I sincerely apologize for any misunderstanding this may have caused. As I continue to grow more comfortable with my language disorder, I’ve come to better understand and accept the appropriate terminology to describe my experience. Thank you for your patience and understanding.
 - Cassidy/Cirrus ⦻ It/clown/plague/fear — Questioning my gender again I sigh..
 - Aegosexual Aromantic [XPOSIC+](https://posicterms.carrd.co/#subterms) [Objectum](https://objectuminfo.carrd.co/#explain)
 - Bodily 18 🪓 Minors [DNIUID](https://gildedwingsinteractiontags.carrd.co/)
 - Traumagenic [OSDD](https://did-research.org/comorbid/dd/osdd_udd/)-[1B](https://did-research.org/comorbid/dd/osdd_udd/did_osdd) system. Endogenic systems DNI for comfort pls!
-- Nonverbal irl, AAC user, I will use tts in VCs.
+- [Anomic Aphasia](https://my.clevelandclinic.org/health/diseases/anomic-aphasia), AAC user, I'm getting speech therapy, but please note I will either use TTS in VC or I'll require your patience.
 - Bipolar I & Borderline Personality Disorder, Autistic. Diagnosed by a professional.
 - [Agere](https://agerepetre.carrd.co/#agere) and [Pet](https://agerepetre.carrd.co/#petre)-[dreamer](https://agerepetre.carrd.co/#types-of-regression)
 - Occasional touch discomfort, diagnosed Haphephobia irl.
