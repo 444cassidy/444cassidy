@@ -1,4 +1,3 @@
-## BEFORE YOU WONDER: I would like to clarify that I have been diagnosed with Anomic Aphasia, a specific type of [Aphasia](https://www.webmd.com/brain/aphasia-causes-symptoms-types-treatments). In the past, I have frequently referred to myself as nonverbal in real-life situations. While I do have the struggle to speak, this description was not entirely accurate. I sincerely apologize for any misunderstanding this may have caused. As I continue to grow more comfortable with my language disorder, I’ve come to better understand and accept the appropriate terminology to describe my experience. Thank you for your patience and understanding.
 - Cassidy/Cirrus ⦻ It/clown/plague/fear — Questioning my gender again I sigh..
 - Aegosexual Aromantic [XPOSIC+](https://posicterms.carrd.co/#subterms) [Objectum](https://objectuminfo.carrd.co/#explain)
 - Bodily 18 🪓 Minors [DNIUID](https://gildedwingsinteractiontags.carrd.co/)
