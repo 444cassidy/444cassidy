@@ -7,7 +7,7 @@
 - [Agere](https://agerepetre.carrd.co/#agere) and [Pet](https://agerepetre.carrd.co/#petre)-[dreamer](https://agerepetre.carrd.co/#types-of-regression)
 - Occasional touch discomfort, diagnosed Haphephobia irl.
 - Spanish & English fluent
-- [Therian](https://therian.fandom.com/wiki/Therianthropy) and Furry
+- [Therian](https://therian.fandom.com/wiki/Therianthropy) and Furry (Wondering what skin is and isn't a theriotype? Look for the Theta 'Θ' symbol in the skin's mame!)
 - [Juggalo](https://en.wikipedia.org/wiki/Juggalo), sometimes Juggalette
 - Self-taught artist and programmer.
 ![© ianrkives](https://github.com/user-attachments/assets/452e5aa6-6957-490a-a232-e2dcdebe4985)
