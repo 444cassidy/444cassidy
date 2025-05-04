@@ -1,5 +1,5 @@
-- Cassidy/Cirrus ⦻ It/clown/plague/fear — Questioning my gender again I sigh..
-- Aegosexual Aromantic [XPOSIC+](https://posicterms.carrd.co/#subterms) [Objectum](https://objectuminfo.carrd.co/#explain)
+- Cassidy/Cirrus ⦻ It/clown/plague/fear — Transmasc Multigender Female
+- Aroace Spec Lesbian [XPOSIC+](https://posicterms.carrd.co/#subterms) [Objectum](https://objectuminfo.carrd.co/#explain)
 - Bodily 18 🪓 Minors [DNIUID](https://gildedwingsinteractiontags.carrd.co/)
 - Traumagenic [OSDD](https://did-research.org/comorbid/dd/osdd_udd/)-[1B](https://did-research.org/comorbid/dd/osdd_udd/did_osdd) system. Endogenic systems DNI for comfort pls!
 - [Anomic Aphasia](https://my.clevelandclinic.org/health/diseases/anomic-aphasia), AAC user, I'm getting speech therapy, but please note I will either use TTS in VC or I'll require your patience.
