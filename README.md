@@ -10,7 +10,7 @@
 - [Therian](https://therian.fandom.com/wiki/Therianthropy) and Furry (Wondering what skin is and isn't a theriotype? Look for the Theta 'Θ' symbol in the skin's mame!)
 - [Juggalo](https://en.wikipedia.org/wiki/Juggalo), sometimes Juggalette
 - Self-taught artist and programmer.
-- Anti-harrassment
+- Proshipper/anti-harassment/whatever you call those guys who dgaf about what u ship even if it's "immoral". Just don't do that shit irl and I won't gaf.
 ![© ianrkives](https://github.com/user-attachments/assets/452e5aa6-6957-490a-a232-e2dcdebe4985)
 - Overly paranoid and socially anxious, please don't take offense if I hide or ignore you.
 - Usually AFK bc we're drawing or doing something. You can whisper us.
@@ -25,4 +25,3 @@
 - We have a lot of introjects from "edgy sources" so expect to see Jeff the Killer in the same room as Hank J. Wimbleton and Pinkamena.
 - Ask for our interests
 - I like edgy song creators like Mc Bushpig, so uhm.. dni if ur not comfy w/ that bc I quote their songs sometimes + some of my skins have references to their songs.
-- I don't call myself the term "proshipper" because I think it sounds silly, plus anti-harrassment just sounds better plus gets the point across, but just know idgaf what you ship as long as you aren't doing it irl
