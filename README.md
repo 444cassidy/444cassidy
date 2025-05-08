@@ -1,8 +1,3 @@
-# SCROLL BELOW IMAGE FOR ABOUT ME INFO! :3
-![Untitled243_20250508095105](https://github.com/user-attachments/assets/9d3e2d54-914b-4854-95fc-25aa26293c6d)
-ART BY ME :3 It's of my Elnea Kingdom oc Dolly!!
-
-
 - Cassidy/Cirrus ⦻ It/clown/plague/fear — Transmasc Multigender Butch Female
 - Aroace Spec Lesbian [XPOSIC+](https://posicterms.carrd.co/#subterms) [Objectum](https://objectuminfo.carrd.co/#explain)
 - Bodily 18 🪓 Minors [DNIUID](https://gildedwingsinteractiontags.carrd.co/)
