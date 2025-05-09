@@ -5,7 +5,6 @@
 - [Anomic Aphasia](https://my.clevelandclinic.org/health/diseases/anomic-aphasia), AAC user, I'm getting speech therapy, but please note I will either use TTS in VC or I'll require your patience.
 - Bipolar I & Borderline Personality Disorder, Autistic. Diagnosed by a professional.
 - [Agere](https://agerepetre.carrd.co/#agere) and [Pet](https://agerepetre.carrd.co/#petre)-[dreamer](https://agerepetre.carrd.co/#types-of-regression)
-- Occasional touch discomfort, diagnosed Haphephobia irl.
 - Spanish & English fluent
 - [Therian](https://therian.fandom.com/wiki/Therianthropy) and Furry (Wondering what skin is and isn't a theriotype? Look for the Theta 'Θ' symbol in the skin's mame!)
 - [Juggalo](https://en.wikipedia.org/wiki/Juggalo), sometimes Juggalette
