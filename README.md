@@ -9,7 +9,7 @@
 - [Therian](https://therian.fandom.com/wiki/Therianthropy) and Furry (Wondering what skin is and isn't a theriotype? Look for the Theta 'Θ' symbol in the skin's mame!)
 - [Juggalo](https://en.wikipedia.org/wiki/Juggalo), sometimes Juggalette
 - Self-taught artist and programmer.
-![© ianrkives](https://github.com/user-attachments/assets/452e5aa6-6957-490a-a232-e2dcdebe4985)
+![kodaswrld](https://github.com/user-attachments/assets/5f3e436e-321d-47a5-afe5-90b42efa24b5)
 - Overly paranoid and socially anxious, please don't take offense if I hide or ignore you.
 - Usually AFK bc we're drawing or doing something. You can whisper us.
 - Okay with skin inspo/color-picking, but please try not to copy it code-for-code. I don't own colors or items, but I'd prefer to had my own skins.
