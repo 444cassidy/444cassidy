@@ -1,4 +1,5 @@
-- Skittles/Cassidy/Cirrus ⦻ It/clown/plague/fear — Transmasc Multigender Butch Female
+- Skittles/Cassidy/Cirrus
+- It/clown/plague/fear — Transmasc Multigender Butch Female
 - Aroace Spec Lesbian [XPOSIC+](https://posicterms.carrd.co/#subterms) [Objectum](https://objectuminfo.carrd.co/#explain)
 - Bodily 18
 - Traumagenic [OSDD](https://did-research.org/comorbid/dd/osdd_udd/)-[1B](https://did-research.org/comorbid/dd/osdd_udd/did_osdd) system.
