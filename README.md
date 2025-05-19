@@ -7,7 +7,7 @@
 - Bipolar I & Borderline Personality Disorder, Autistic. Diagnosed by a professional.
 - [Agere](https://agerepetre.carrd.co/#agere) and [Pet](https://agerepetre.carrd.co/#petre)-[dreamer](https://agerepetre.carrd.co/#types-of-regression)
 - Spanish & English fluent
-- [Therian](https://therian.fandom.com/wiki/Therianthropy) and Furry (Wondering what skin is and isn't a theriotype? Look for the Theta 'Θ' symbol in the skin's mame!)
+- [Therian](https://therian.fandom.com/wiki/Therianthropy) and Furry
 - [Juggalo](https://en.wikipedia.org/wiki/Juggalo), sometimes Juggalette
 - Self-taught artist and programmer.
 ![kodaswrld](https://github.com/user-attachments/assets/5f3e436e-321d-47a5-afe5-90b42efa24b5)
