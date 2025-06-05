@@ -13,7 +13,6 @@
 ![kodaswrld](https://github.com/user-attachments/assets/5f3e436e-321d-47a5-afe5-90b42efa24b5)
 - Overly paranoid and socially anxious, please don't take offense if I hide or ignore you.
 - Usually AFK bc we're drawing or doing something. You can whisper us.
-- Okay with skin inspo/color-picking, but please try not to copy it code-for-code. I don't own colors or items, but I'd prefer to had my own skins.
 - Don't roleplay with us unless we have the roleplay icon selected (rarely) or are in a roleplay (also rarely)
 - We work a job as of now and I'm busy with life so I cannot be on social media 24/7! Please expect slow replies!
 - [Multishipper](https://fanlore.org/wiki/Multishipping) ++ [Self-shipper](https://www.tumblr.com/the-selfship-corner/742710970744553472/selfship-vocabulary-guide)
