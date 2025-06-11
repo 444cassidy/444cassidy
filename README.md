@@ -1,5 +1,5 @@
 - Snoopy/Cassidy [++](https://pronouns.cc/@444cassidy)
-- It/clown/plague/fear — [Transmasc](https://lgbtqia.wiki/wiki/Transmasculine) [Intersex](https://lgbtqia.wiki/wiki/Intersex) [Multigender](https://lgbtqia.wiki/wiki/Multigender) [Butch](https://lgbtqia.wiki/wiki/Butch) Female
+- She/it/he/clown — [Transmasc](https://lgbtqia.wiki/wiki/Transmasculine) [Intersex](https://lgbtqia.wiki/wiki/Intersex) [Multigender](https://lgbtqia.wiki/wiki/Multigender) [Butch](https://lgbtqia.wiki/wiki/Butch) Female
 - [Aroace Spec](https://lgbtqia.wiki/wiki/Aroace_Spectrum) Lesbian [XPOSIC+](https://posicterms.carrd.co/#subterms) [Objectum](https://objectuminfo.carrd.co/#explain)
 - Bodily 18
 - Traumagenic [OSDD](https://did-research.org/comorbid/dd/osdd_udd/)-[1B](https://did-research.org/comorbid/dd/osdd_udd/did_osdd) system.
