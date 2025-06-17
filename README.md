@@ -10,7 +10,7 @@
 - [Therian](https://therian.fandom.com/wiki/Therianthropy) and Furry
 - [Juggalo](https://en.wikipedia.org/wiki/Juggalo), sometimes Juggalette
 - Self-taught artist and programmer.
-![bernardsbendystraws](https://github.com/user-attachments/assets/8d5933d8-6385-495b-9a1b-e79a63bfb6ab)
+![image](https://github.com/user-attachments/assets/3c49427b-4fe9-4a5d-b047-9989a7e7dbb1)
 - Overly paranoid and socially anxious, please don't take offense if I hide or ignore you.
 - Usually AFK bc we're drawing or doing something. You can whisper us.
 - Don't roleplay with us unless we have the roleplay icon selected (rarely) or are in a roleplay (also rarely)
