@@ -1,4 +1,4 @@
-- Snoopy/Cassidy [++](https://pronouns.cc/@444cassidy)
+- Dawn/Cassidy [++](https://pronouns.cc/@444cassidy)
 - She/it/he/clown — [Transmasc](https://lgbtqia.wiki/wiki/Transmasculine) [Intersex](https://lgbtqia.wiki/wiki/Intersex) [Multigender](https://lgbtqia.wiki/wiki/Multigender) [Butch](https://lgbtqia.wiki/wiki/Butch) Female
 - [Aroace Spec](https://lgbtqia.wiki/wiki/Aroace_Spectrum) Lesbian [XPOSIC+](https://posicterms.carrd.co/#subterms) [Objectum](https://objectuminfo.carrd.co/#explain)
 - Bodily 18
