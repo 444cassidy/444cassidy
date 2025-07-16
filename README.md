@@ -1,3 +1,10 @@
+<p align="center"> 
+  <img width="546" height="213" alt="Drawn by Me :3" src="https://github.com/user-attachments/assets/b446cd2b-a77c-462d-8e50-cc4eb5d94c57" />
+</p>
+<p align="center">
+  me and my wife if u even care (Drawn by me. Chars are Demoman and Spy)
+</p>
+
 - Dawn/Cassidy [++](https://pronouns.cc/@444cassidy)
 - She/it/he/clown — [Transmascfem](https://lgbtqia.wiki/wiki/Transmascfem) [Intersex](https://lgbtqia.wiki/wiki/Intersex) [Multigender](https://lgbtqia.wiki/wiki/Multigender) Female
 - [Unlabeled](https://lgbtqia.wiki/wiki/Unlabeled) [Objectum](https://objectuminfo.carrd.co/#explain)
