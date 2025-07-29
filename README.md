@@ -1,8 +1,5 @@
-<p align="center"> 
-  <img width="546" height="213" alt="Drawn by Me :3" src="https://github.com/user-attachments/assets/b446cd2b-a77c-462d-8e50-cc4eb5d94c57" />
-</p>
 <p align="center">
-  me and my wife if u even care (Drawn by me. Chars are Demoman and Spy)
+  <img width="662" height="309" src="https://github.com/user-attachments/assets/af04cc08-ca92-4e42-a99b-85ec3a1abf07">
 </p>
 
 - Dawn/Cassidy [++](https://pronouns.cc/@444cassidy)
@@ -17,7 +14,10 @@
 - [Therian](https://therian.fandom.com/wiki/Therianthropy) and Furry
 - [Juggalo](https://en.wikipedia.org/wiki/Juggalo), sometimes Juggalette
 - Self-taught artist and programmer.
-![image](https://github.com/user-attachments/assets/3c49427b-4fe9-4a5d-b047-9989a7e7dbb1)
+<p align="center">
+  <img width="662" height="309" src="https://github.com/user-attachments/assets/cb79c0ce-73d2-468d-b5c2-c6541d827265">
+</p>
+
 - Overly paranoid and socially anxious, please don't take offense if I hide or ignore you.
 - Usually AFK bc we're drawing or doing something. You can whisper us.
 - Don't roleplay with us unless we have the roleplay icon selected (rarely) or are in a roleplay (also rarely)
@@ -31,3 +31,4 @@
 - Ask for our interests
 - I like edgy song creators like Mc Bushpig, so uhm.. dni if ur not comfy w/ that bc I quote their songs sometimes + some of my skins have references to their songs.
 - I change my skin style like every two days, just look for my github to know who I am
+
