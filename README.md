@@ -9,7 +9,7 @@
 - [OSDD](https://did-research.org/comorbid/dd/osdd_udd/)-[1B](https://did-research.org/comorbid/dd/osdd_udd/did_osdd) system.
 - [Anomic Aphasia](https://my.clevelandclinic.org/health/diseases/anomic-aphasia), AAC user, I'm getting speech therapy, but please note I will either use TTS in VC or I'll require your patience.
 - Bipolar I & Borderline Personality Disorder, Autistic. Diagnosed by a professional.
-- [Agere](https://agerepetre.carrd.co/#agere) and [Pet](https://agerepetre.carrd.co/#petre)-[dreamer](https://agerepetre.carrd.co/#types-of-regression)
+- [Agere](https://agerepetre.carrd.co/#agere) and [Pet](https://agerepetre.carrd.co/#petre)-[dreamer](https://agerepetre.carrd.co/#types-of-regression) (Agere skin will have discord attached, our disc is _444.cassidy)
 - Spanish & English fluent
 - [Therian](https://therian.fandom.com/wiki/Therianthropy) and Furry
 - [Juggalo](https://en.wikipedia.org/wiki/Juggalo), sometimes Juggalette
