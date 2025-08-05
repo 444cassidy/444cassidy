@@ -1,6 +1,6 @@
 <img width="1599" height="142" alt="image" src="https://github.com/user-attachments/assets/2e9d26d0-8351-4815-afd5-3cc83eb5320b" />
 
-- Dawn/Cassidy [++](https://pronouns.cc/@444cassidy)
+- Dewdrop/Sodo/Cassidy [++](https://pronouns.cc/@444cassidy)
 - She/it/he/clown — [Transmascfem](https://lgbtqia.wiki/wiki/Transmascfem) [Intersex](https://lgbtqia.wiki/wiki/Intersex) [Multigender](https://lgbtqia.wiki/wiki/Multigender) Female
 - [Unlabeled](https://lgbtqia.wiki/wiki/Unlabeled) [Objectum](https://objectuminfo.carrd.co/#explain)
 - Bodily 18
