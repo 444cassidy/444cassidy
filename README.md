@@ -1,6 +1,4 @@
-<p align="center">
-  <img width="662" height="309" src="https://github.com/user-attachments/assets/af04cc08-ca92-4e42-a99b-85ec3a1abf07">
-</p>
+<img width="1599" height="142" alt="image" src="https://github.com/user-attachments/assets/2e9d26d0-8351-4815-afd5-3cc83eb5320b" />
 
 - Dawn/Cassidy [++](https://pronouns.cc/@444cassidy)
 - She/it/he/clown — [Transmascfem](https://lgbtqia.wiki/wiki/Transmascfem) [Intersex](https://lgbtqia.wiki/wiki/Intersex) [Multigender](https://lgbtqia.wiki/wiki/Multigender) Female
@@ -14,9 +12,8 @@
 - [Therian](https://therian.fandom.com/wiki/Therianthropy) and Furry
 - [Juggalo](https://en.wikipedia.org/wiki/Juggalo), sometimes Juggalette
 - Self-taught artist and programmer.
-<p align="center">
-  <img width="662" height="309" src="https://github.com/user-attachments/assets/cb79c0ce-73d2-468d-b5c2-c6541d827265">
-</p>
+
+<img width="1599" height="142" alt="image" src="https://github.com/user-attachments/assets/c8225096-9d4e-40d1-b683-9ce7b7f61f67" />
 
 - Overly paranoid and socially anxious, please don't take offense if I hide or ignore you.
 - Usually AFK bc we're drawing or doing something. You can whisper us.
