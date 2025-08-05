@@ -9,7 +9,7 @@
 - [OSDD](https://did-research.org/comorbid/dd/osdd_udd/)-[1B](https://did-research.org/comorbid/dd/osdd_udd/did_osdd) system.
 - [Anomic Aphasia](https://my.clevelandclinic.org/health/diseases/anomic-aphasia), AAC user, I'm getting speech therapy, but please note I will either use TTS in VC or I'll require your patience.
 - Bipolar I & Borderline Personality Disorder, Autistic. Diagnosed by a professional.
-- [Agere](https://agerepetre.carrd.co/#agere) and [Pet](https://agerepetre.carrd.co/#petre)-[dreamer](https://agerepetre.carrd.co/#types-of-regression) (Agere skin will have discord attached, our disc is _444.cassidy)
+- [Agere](https://agerepetre.carrd.co/#agere) and [Pet](https://agerepetre.carrd.co/#petre)-[dreamer](https://agerepetre.carrd.co/#types-of-regression)
 - Spanish & English fluent
 - [Therian](https://therian.fandom.com/wiki/Therianthropy) and Furry
 - [Juggalo](https://en.wikipedia.org/wiki/Juggalo), sometimes Juggalette
@@ -25,10 +25,8 @@
 - [Multishipper](https://fanlore.org/wiki/Multishipping) ++ [Self-shipper](https://www.tumblr.com/the-selfship-corner/742710970744553472/selfship-vocabulary-guide)
 - I hate the terns "factive" and "fictive" and ask that you use the term introject.
 - Our medical history is none of your business.
-- If we find out you're a minor on 18+, we will permahide you for our safety. No, we will not unblock you until we feel safe.
 - I don't talk about my BPD much so don't expect me to put it everywhere except my discord, github, and talklife account.
 - We have a lot of introjects from "edgy sources" so expect to see Jeff the Killer in the same room as Hank J. Wimbleton and Pinkamena.
 - Ask for our interests
-- I like edgy song creators like Mc Bushpig, so uhm.. dni if ur not comfy w/ that bc I quote their songs sometimes + some of my skins have references to their songs.
 - I change my skin style like every two days, just look for my github to know who I am
 
