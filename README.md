@@ -1,4 +1,4 @@
-<img width="1599" height="142" alt="image" src="https://github.com/user-attachments/assets/2e9d26d0-8351-4815-afd5-3cc83eb5320b" />
+<img width="2048" height="540" alt="image" src="https://github.com/user-attachments/assets/a7508bf7-52ee-43e8-9da6-8d0e5239d1d7" />
 
 - Dewdrop/Sodo/Cassidy [++](https://pronouns.cc/@444cassidy)
 - She/it/he/clown — [Transmascfem](https://lgbtqia.wiki/wiki/Transmascfem) [Intersex](https://lgbtqia.wiki/wiki/Intersex) [Multigender](https://lgbtqia.wiki/wiki/Multigender) Female
@@ -13,7 +13,7 @@
 - [Juggalo](https://en.wikipedia.org/wiki/Juggalo), sometimes Juggalette
 - Self-taught artist and programmer.
 
-<img width="1599" height="142" alt="image" src="https://github.com/user-attachments/assets/c8225096-9d4e-40d1-b683-9ce7b7f61f67" />
+<img width="2048" height="540" alt="image" src="https://github.com/user-attachments/assets/aef23a62-8286-4991-afcd-ed78cfecfcbc" />
 
 - Overly paranoid and socially anxious, please don't take offense if I hide or ignore you.
 - Usually AFK bc we're drawing or doing something. You can whisper us.
