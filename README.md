@@ -10,7 +10,6 @@
 - [Agere](https://agerepetre.carrd.co/#agere) and [Pet](https://agerepetre.carrd.co/#petre)-[dreamer](https://agerepetre.carrd.co/#types-of-regression)
 - Spanish & English fluent
 - [Therian](https://therian.fandom.com/wiki/Therianthropy) and Furry
-- [Juggalo](https://en.wikipedia.org/wiki/Juggalo), sometimes Juggalette
 - Self-taught artist and programmer.
 
 <img width="2048" height="540" alt="image" src="https://github.com/user-attachments/assets/aef23a62-8286-4991-afcd-ed78cfecfcbc" />
