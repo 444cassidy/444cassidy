@@ -1,4 +1,5 @@
 <img width="2000" height="100" alt="tumblr_6cdde895fe343820be41ee0152b5af2c_1e83df27_2048" src="https://github.com/user-attachments/assets/25bac96d-4449-47a0-8670-6dea6abe4a96" />
+- Banner credits: the-horde-png on Tumblr
 
 - Sanford/Sodo/Cassidy [++](https://pronouns.cc/@444cassidy)
 - She/it/he/clown — [Transmascfem](https://lgbtqia.wiki/wiki/Transmascfem) [Intersex](https://lgbtqia.wiki/wiki/Intersex) [Multigender](https://lgbtqia.wiki/wiki/Multigender) Female
