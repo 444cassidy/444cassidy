@@ -4,7 +4,7 @@
 - Sanford/Sodo/Cassidy [++](https://pronouns.cc/@444cassidy)
 - She/it/he/clown — [Transmascfem](https://lgbtqia.wiki/wiki/Transmascfem) [Intersex](https://lgbtqia.wiki/wiki/Intersex) [Multigender](https://lgbtqia.wiki/wiki/Multigender) Female
 - [Unlabeled](https://lgbtqia.wiki/wiki/Unlabeled) [Objectum](https://objectuminfo.carrd.co/#explain)
-- Bodily 18
+- Bodily 19
 - [OSDD](https://did-research.org/comorbid/dd/osdd_udd/)-[1B](https://did-research.org/comorbid/dd/osdd_udd/did_osdd) system.
 - [Anomic Aphasia](https://my.clevelandclinic.org/health/diseases/anomic-aphasia), AAC user, I'm getting speech therapy, but please note I will either use TTS in VC or I'll require your patience.
 - Bipolar I & Borderline Personality Disorder, Autistic. Diagnosed by a professional.
