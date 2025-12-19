@@ -1,7 +1,7 @@
-<img width="2000" height="100" alt="tumblr_6cdde895fe343820be41ee0152b5af2c_1e83df27_2048" src="https://github.com/user-attachments/assets/25bac96d-4449-47a0-8670-6dea6abe4a96" />
-- Banner credits: the-horde-png on Tumblr
+<img width="1280" height="96" alt="image" src="https://github.com/user-attachments/assets/79cb1c16-d2e3-4574-ad5f-f54460b47073" />
+- Banner credits: sister-lucifer on Tumblr
 
-- Sanford/Sodo/Cassidy [++](https://pronouns.cc/@444cassidy)
+- Scout/Sodo/Cassidy [++](https://pronouns.cc/@444cassidy)
 - She/it/he/clown — [Transmascfem](https://lgbtqia.wiki/wiki/Transmascfem) [Intersex](https://lgbtqia.wiki/wiki/Intersex) [Multigender](https://lgbtqia.wiki/wiki/Multigender) Female
 - [Unlabeled](https://lgbtqia.wiki/wiki/Unlabeled) [Objectum](https://objectuminfo.carrd.co/#explain)
 - Bodily 19
@@ -13,7 +13,7 @@
 - [Therian](https://therian.fandom.com/wiki/Therianthropy) and Furry
 - Self-taught artist and programmer.
 
-<img width="2000" height="100" alt="tumblr_6cdde895fe343820be41ee0152b5af2c_1e83df27_2048" src="https://github.com/user-attachments/assets/25bac96d-4449-47a0-8670-6dea6abe4a96" />
+<img width="1280" height="96" alt="image" src="https://github.com/user-attachments/assets/79cb1c16-d2e3-4574-ad5f-f54460b47073" />
 
 - Overly paranoid and socially anxious, please don't take offense if I hide or ignore you.
 - Usually AFK bc we're drawing or doing something. You can whisper us.
