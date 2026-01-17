@@ -1,29 +1,56 @@
-<img width="2048" height="164" alt="image" src="https://github.com/user-attachments/assets/84df000d-b23e-4195-9dbc-76b70626872f" />
+<div align="center">
+ <img width="826" height="109" alt="image" src="https://github.com/user-attachments/assets/8410cfb5-9be6-4d60-a498-83d5fa322942" />
+</div>
 
-- Nihil/Sodo/Cassidy [++](https://pronouns.cc/@444cassidy)
-- She/it/he/clown — [Transmascfem](https://lgbtqia.wiki/wiki/Transmascfem) [Intersex](https://lgbtqia.wiki/wiki/Intersex) [Multigender](https://lgbtqia.wiki/wiki/Multigender) Female
-- [Unlabeled](https://lgbtqia.wiki/wiki/Unlabeled) [Objectum](https://objectuminfo.carrd.co/#explain)
-- Bodily 19
-- [OSDD](https://did-research.org/comorbid/dd/osdd_udd/)-[1B](https://did-research.org/comorbid/dd/osdd_udd/did_osdd) system.
-- [Anomic Aphasia](https://my.clevelandclinic.org/health/diseases/anomic-aphasia), AAC user, I'm getting speech therapy, but please note I will either use TTS in VC or I'll require your patience.
-- Bipolar I & Borderline Personality Disorder, Autistic. Diagnosed by a professional.
-- [Agere](https://ageregression.crd.co/#ageregression) and [Petre](https://ageregression.crd.co/#petregression)
-- Spanish & English fluent
-- [Therian](https://therian.fandom.com/wiki/Therianthropy) and Furry
-- [LaVeyan Satanist](https://religion.fandom.com/wiki/LaVeyan_Satanism)
-- Self-taught artist and programmer.
+<div align="center">
+ TMascFem, Fluxodumgender, && Interfluid
+</div>
+<div align="center">
+</div>
+<div align="center">
+ Omnicurious, Lesboy
+</div>
+<div align="center">
+ OSDD-1B System, Bodily 19
+</div>
+<div align="center">
+ AAC && TTS User
+</div>
+<div align="center">
+ Agere && Petre
+</div>
+<div align="center">
+ Therian && Furry
+</div>
+<div align="center">
+ Self-taught Artist, Programmer, Animator, and 3D Modeler
+</div>
+<div align="center">
+ Mutli-shipper && Self-shipper
+</div>
 
-<img width="2048" height="164" alt="image" src="https://github.com/user-attachments/assets/6aa102bd-e44b-4428-94a7-55b95aec8c45" />
+<div align="center">
+ <img width="826" height="109" alt="image" src="https://github.com/user-attachments/assets/8410cfb5-9be6-4d60-a498-83d5fa322942" />
+</div>
 
-- Overly paranoid and socially anxious, please don't take offense if I hide or ignore you.
-- Usually AFK bc we're drawing or doing something. You can whisper us.
-- Don't roleplay with us unless we have the roleplay icon selected (rarely) or are in a roleplay (also rarely)
-- We work a job as of now and I'm busy with life so I cannot be on social media 24/7! Please expect slow replies!
-- [Multishipper](https://fanlore.org/wiki/Multishipping) ++ [Self-shipper](https://www.tumblr.com/the-selfship-corner/742710970744553472/selfship-vocabulary-guide)
-- I hate the terns "factive" and "fictive" and ask that you use the term introject.
-- Our medical history is none of your business.
-- I don't talk about my BPD much so don't expect me to put it everywhere except my discord, github, and talklife account.
-- We have a lot of introjects from "edgy sources" so expect to see Jeff the Killer in the same room as Hank J. Wimbleton and Pinkamena.
-- Ask for our interests
-- I change my skin style like every two days, just look for my github to know who I am
-
+<div align="center">
+ Overly paranoid and socially anxious, please don't take offense if I hide or ignore you.
+</div>
+<div align="center">
+ Usually AFK bc we're drawing or doing something. You can whisper us.
+</div>
+<div align="center">
+ We work a job as of now and I'm busy with life so I cannot be on social media 24/7! Please expect slow replies!
+</div>
+<div align="center">
+ We call our alters "parts" and refuse to use the terms "factive" and "fictive" FOR OUR PARTS!! If you use these terms, we'll use them for you obviously.
+</div>
+<div align="center">
+ We have a lot of introjects from "edgy sources" so expect to see Jeff the Killer in the same room as Hank J. Wimbleton and Pinkamena.
+</div>
+<div align="center">
+  I change my skin style like every two days, just look for my github to know who I am
+</div>
+<div align="center">
+  Fine w/ minors interacting, but we prefer 16+ due to us being 19.
+</div>
