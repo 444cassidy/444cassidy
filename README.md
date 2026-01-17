@@ -10,6 +10,7 @@
 - [Agere](https://ageregression.crd.co/#ageregression) and [Petre](https://ageregression.crd.co/#petregression)
 - Spanish & English fluent
 - [Therian](https://therian.fandom.com/wiki/Therianthropy) and Furry
+- [LaVeyan Satanist](https://religion.fandom.com/wiki/LaVeyan_Satanism)
 - Self-taught artist and programmer.
 
 <img width="2048" height="164" alt="image" src="https://github.com/user-attachments/assets/6aa102bd-e44b-4428-94a7-55b95aec8c45" />
