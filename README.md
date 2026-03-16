@@ -34,6 +34,9 @@
 </div>
 
 <div align="center">
+  Most of us are Profic + Anti-harassment, so be aware of this ig... Sighs and rubs arm.. I'm such a controversial person...
+</div>
+<div align="center">
  Overly paranoid and socially anxious, please don't take offense if I hide or ignore you.
 </div>
 <div align="center">
