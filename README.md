@@ -51,6 +51,3 @@
 <div align="center">
   I change my skin style like every two days, just look for my github to know who I am
 </div>
-<div align="center">
-  Fine w/ minors interacting, but we prefer 17+ due to us being 19.
-</div>
